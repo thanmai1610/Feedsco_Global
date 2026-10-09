@@ -1,2 +1,2 @@
 # Feedsco_Global
-My Internship experience
+During my summer internship, I conducted market research in Bhopal and Ahmedabad markets to understand how wholesalers, retailers, and consumers perceive, understand, and engage with the brand. I also studied the branding and marketing strategies of competitor brands to gain insights into market positioning and consumer preferences. Based on these findings, I contributed to developing a comprehensive Brand Guidelines Handbook. Additionally, I gained hands-on experience in digital branding through content creation, including conceptualizing and producing reels and other social media content to strengthen the brand’s digital presence.
